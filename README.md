@@ -6,6 +6,8 @@ I am mostly intrested in two things; creativeness and my book—not counting, of
 
 I know a small bit of python, a reasonable (read virtually non-existant) knowledge of lua and C++, and a reasonable chance of surprising myself at any computer language—mainly by exactly how little I know about it.
 
+Unlike some people (This is not an insult, it's my preference) I don't like naming things after me. If I found a metal I would probably name it Asinium after one of my characters (No, the name is not mine.)
+
 I am a fan of Legos and have created several (at least, to me) masterpieces including a futuristic sci-fi phantom fighter.
 
 BZFlag forever!
