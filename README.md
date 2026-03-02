@@ -12,7 +12,8 @@ Unlike some people (This is not an insult, it's my preference) I don't like nami
 
 I am a fan of Legos and have created several (at least, to me) masterpieces including a futuristic sci-fi phantom fighter.
 
-They drew close—closer, until they had almost reached him, then suddenly a bright and intense light shone. A deep and powerful voice echoed in his heart, a warm, jubilant and compassionate voice, yet somehow it echoed waves of sadness as well. It was full, and it rang with inner fire and the forest and trees, mountains and valleys, stars and planets, galaxies and light. If a voice echoed as it spoke, this voice echoed a hundredfold; it left a deep mark, a gladness. It shone, and the quality rebounded and vanished from the memory of weak human minds, yet the recipient would always feel as though something more had to come.
+"They drew close—closer, until they had almost reached him, then suddenly a bright and intense light shone. A deep and   powerful voice echoed in his heart, a warm, jubilant and compassionate voice, yet somehow it echoed waves of sadness as   well. It was full, and it rang with inner fire and the forest and trees, mountains and valleys, stars and planets,   galaxies and light. If a voice echoed as it spoke, this voice echoed a hundredfold; it left a deep mark, a gladness. It   shone, and the quality rebounded and vanished from the memory of weak human minds, yet the recipient would always feel as 
+though something more had to come."
 
 This represents what can and may happen in this world.
 
