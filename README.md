@@ -8,16 +8,15 @@ The first social account is a bzflag account—you'll have to be logged into the
 
 I know a small bit of python, a reasonable (read virtually non-existant) knowledge of lua and C++, and a reasonable chance of surprising myself at any computer language—mainly by exactly how little I know about it.
 
-Unlike some people (This is not an insult, it's my preference) I don't like naming things after me. If I found a metal I would probably name it Asinium after one of my characters (No, the name is not mine.)
+I don't like naming repositories after me which is why when you checked this account in 2022 you didn't see this.
 
 I am a fan of Legos and have created several (at least, to me) masterpieces including a futuristic sci-fi phantom fighter.
 
+I moved to Saudi at seven, when I started thinking of a book, which now exists elsewhere than my head. At least, mostly.
 
-I moved to Saudi at seven, when I started thinking of a book. 
+I am intrested in Luanti, BZFlag, and making mods/maps for both, provided I have time and a few croissants in sight.
 
-I am intrested in Luanti, BZFlag, and making mods/maps for both.
-
-I am a 3D modeler, who works best in blender. If you need models for pretty much anything besides comercial use, contact me and I'll try to make them
+I am a 3D modeler, who works best in blender (That's where I devolop my 3D brain.) If you need models for pretty much anything besides comercial use, contact me and I'll try to make them, charge free, though please do note that it will take me several months to get back to you.
 
 Both chess.com and forums.bzflag.org require you to have an account to talk to other users, and accounts both require a valid email adress. You'll probably want to talk to me on the forums; I check it more often.
 
