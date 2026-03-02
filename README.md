@@ -4,7 +4,7 @@ I am a teenager who’s addicted to coding, communities and, unforunately, dropp
 
 I am mostly intrested in two things; creativeness and my book—not counting, of course, BZFlag. 
 
-My one social account is a bzflag account—you'll have to be logged into the bzflag forums to view it. Sorry about that.
+The first social account is a bzflag account—you'll have to be logged into the bzflag forums to view it. Sorry about that.
 
 I know a small bit of python, a reasonable (read virtually non-existant) knowledge of lua and C++, and a reasonable chance of surprising myself at any computer language—mainly by exactly how little I know about it.
 
