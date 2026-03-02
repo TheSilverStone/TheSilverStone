@@ -21,7 +21,7 @@ I am a 3D modeler, who works best in blender. If you need models for pretty much
 
 Both chess.com and forums.bzflag.org require you to have an account to talk to other users, and accounts both require a valid email adress. You'll probably want to talk to me on the forums; I check it more often.
 
-
+My book is weird.
 
 "He lay, as if in a trance, in a tunnel of sight. In it, wicked things and hob-goblins laughed and howled.
 
