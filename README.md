@@ -21,8 +21,6 @@ I am a 3D modeler, who works best in blender. If you need models for pretty much
 
 Both chess.com and forums.bzflag.org require you to have an account to talk to other users, and accounts both require a valid email adress. You'll probably want to talk to me on the forums; I check it more often.
 
-My book is weird.
-
 "He lay, as if in a trance, in a tunnel of sight. In it, wicked things and hob-goblins laughed and howled.
 
 They drew close—closer, until they had almost reached him, then suddenly a bright and intense light shone. A deep and   powerful voice echoed in his heart, a warm, jubilant and compassionate voice, yet somehow it echoed waves of sadness as   well. It was full, and it rang with inner fire and the forest and trees, mountains and valleys, stars and planets,   galaxies and light. If a voice echoed as it spoke, this voice echoed a hundredfold; it left a deep mark, a gladness. It   shone, and the quality rebounded and vanished from the memory of weak human minds, yet the recipient would always feel as 
