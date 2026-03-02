@@ -15,7 +15,7 @@ I am a fan of Legos and have created several (at least, to me) masterpieces incl
 
 I moved to Saudi at seven, when I started thinking of a book. 
 
-I am intrested in @Luanti, @BZFlag-dev, and making mods/maps for both.
+I am intrested in Luanti, BZFlag, and making mods/maps for both.
 
 I am a 3D modeler, who works best in blender. If you need models for pretty much anything besides comercial use, contact me and I'll try to make them
 
