@@ -18,7 +18,7 @@ I am intrested in Luanti, BZFlag, and making mods/maps for both, provided I have
 
 I am a 3D modeler, who works best in blender (That's where I devolop my 3D brain.) If you need models for pretty much anything besides comercial use, contact me and I'll try to make them, charge free, though please do note that it will take me several months to get back to you.
 
-Both chess.com and forums.bzflag.org require you to have an account to talk to other users, and accounts both require a valid email adress. You'll probably want to talk to me on the forums; I check it more often.
+Both chess.com and forums.bzflag.org require you to have an account to talk to other users, and accounts both require a valid email adress. You'll probably want to talk to me on the forums; I check it more often. (Meaning hardly ever.)
 
 "He lay, as if in a trance, in a tunnel of sight. In it, wicked things and hob-goblins laughed and howled.
 
