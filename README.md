@@ -4,6 +4,8 @@ I am a teenager who’s addicted to coding, communities and, unforunately, dropp
 
 I am mostly intrested in two things; creativeness and my book—not counting, of course, BZFlag. 
 
+My one social account is a bzflag account—you'll have to be logged into the bzflag forums to view it. Sorry about that.
+
 I know a small bit of python, a reasonable (read virtually non-existant) knowledge of lua and C++, and a reasonable chance of surprising myself at any computer language—mainly by exactly how little I know about it.
 
 Unlike some people (This is not an insult, it's my preference) I don't like naming things after me. If I found a metal I would probably name it Asinium after one of my characters (No, the name is not mine.)
