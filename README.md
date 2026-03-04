@@ -20,6 +20,8 @@ I am a 3D modeler, who works best in blender (That's where I devolop my 3D brain
 
 Both chess.com and forums.bzflag.org require you to have an account to talk to other users, and accounts both require a valid email adress. You'll probably want to talk to me on the forums; I check it more often. (Meaning hardly ever.)
 
+Religion is a hard one. Simply, to him, religion is why the universe is what it is—the truth to hinself. But there is only one Truth and Life and Spirit. These extracts from the rightfully most famous Book of all time explain the core—kinda.
+
 "Gird your sword on your side, you
 mighty one;
 clothe yourself with splendor and majesty
