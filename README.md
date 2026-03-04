@@ -44,16 +44,9 @@ For the word of the Lord is right and true; he is faithful in all he does. The L
 
 In the morning, Lord, you hear my voice; in the morning I lay my requests before you and wait expectantly. For you are not a God who is pleased with wickedness; with you, evil people are not welcome. The arrogant cannot stand in your presence. You hate all who do wrong.
 
-As you come to him, the living Stone—rejected by humans but chosen by God and precious to him— you also, like living stones, are being built into a spiritual house to be a holy priesthood, offering spiritual sacrifices acceptable to God through Jesus Christ."
+As you come to him, the living Stone—rejected by humans but chosen by God and precious to him— you also, like living stones, are being built into a spiritual house to be a holy priesthood, offering spiritual sacrifices acceptable to God through Jesus Christ.
 
-"He lay, as if in a trance, in a tunnel of sight. In it, wicked things and hob-goblins laughed and howled.
-
-They drew close—closer, until they had almost reached him, then suddenly a bright and intense light shone. A deep and   powerful voice echoed in his heart, a warm, jubilant and compassionate voice, yet somehow it echoed waves of sadness as   well. It was full, and it rang with inner fire and the forest and trees, mountains and valleys, stars and planets,   galaxies and light. If a voice echoed as it spoke, this voice echoed a hundredfold; it left a deep mark, a gladness. It   shone, and the quality rebounded and vanished from the memory of weak human minds, yet the recipient would always feel as 
-though something more had to come."
-
-This represents what can and may happen in this world.
-
-Throughout all the world, through all the mists of time, this has happened before.
+This is what the Lord Almighty says: ‘In a little while I will once more shake the heavens and the earth, the sea and the dry land. I will shake all nations, and what is desired by all nations will come, and I will fill this house with glory,’ says the Lord Almighty. ‘The silver is mine and the gold is mine,’ declares the Lord Almighty. ‘The glory of this present house will be greater than the glory of the former house,’ says the Lord Almighty. ‘And in this place I will grant peace,’ declares the Lord Almighty.
 
 The King Reigns—and His Son!
 
