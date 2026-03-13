@@ -18,38 +18,24 @@ I am intrested in Luanti, BZFlag, and making mods/maps for both, provided I have
 
 I am a 3D modeler, who works best in blender (That's where I devolop my 3D brain.) If you need models for pretty much anything besides comercial use, contact me and I'll try to make them, charge free, though please do note that it will take me several months to get back to you.
 
-Both chess.com and forums.bzflag.org require you to have an account to talk to other users, and accounts both require a valid email adress. You'll probably want to talk to me on the forums; I check it more often. (Although I hardly respond to strangers, and if you are pn the forums you should **_play the game._**)
+Both chess.com and forums.bzflag.org require you to have an account to talk to other users, and accounts both require a valid email adress. You'll probably want to talk to me on the forums; I check it more often. (Although I hardly respond to strangers, and if you are on the forums you should **_play the game._**)
 
-Religion is a hard one. Simply, to him, religion is why the universe is what it is—the truth to hinself. But there is only one Truth and Life and Spirit. These extracts from the rightfully most famous Book of all time explain the core—kinda.
+Religion is a hard one. Simply, to him, religion is why the universe is what it is—the truth to hinself. But there is only one Truth and Life and Spirit. These extracts from the rightfully most famous Book of all time explain the core——kinda.
 
-"Gird your sword on your side, you
-mighty one;
-clothe yourself with splendor and majesty
-In majesty ride forth victoriously
-in the cause of truth, humility and justice;
-let your right hand achieve mighty 
-deeds.
+"The fool says in his heart, 'There is no God.' They are corrupt, and their ways vile; there is no one who does good.
 
-Hear this, all you peoples;
-listen, and all who live in this world,
-both low and high,
-rich and poor alike:
-My mouth will speak words of wisdom;
-the meditation of my heart will give 
-you understanding.
+Day and night they prowl about on its walls; malice and abuse are within it. Destructive forces are ar work in the city; threats and lies never leave its streets.
 
-Let the morning bring me word of your unfailing love, 
-for I have put my trust in you. Show me the way I should go, 
-for to you I entrust my life.
+Those who trust in their wealth and boast of their great riches; No one can redeem the life of another or give to God a ransom for them——the ransom for a life is costly, no payment should ever be enough.
 
-For the word of the Lord is right and true; he is faithful in all he does. The Lord loves righteousness and justice; the earth is full of his unfailing love.
+I cry out to God Most High, to God, who vindicates me. He sends from heaven and saves me, rebuking those who hotly pursue me.
 
-In the morning, Lord, you hear my voice; in the morning I lay my requests before you and wait expectantly. For you are not a God who is pleased with wickedness; with you, evil people are not welcome. The arrogant cannot stand in your presence. You hate all who do wrong.
+See what they spew from their mouths——the words from their lips are as sharp as swords.
 
-As you come to him, the living Stone—rejected by humans but chosen by God and precious to him— you also, like living stones, are being built into a spiritual house to be a holy priesthood, offering spiritual sacrifices acceptable to God through Jesus Christ.
+Give us aid against the enemy, for human help is worthless.
 
-This is what the Lord Almighty says: ‘In a little while I will once more shake the heavens and the earth, the sea and the dry land. I will shake all nations, and what is desired by all nations will come, and I will fill this house with glory,’ says the Lord Almighty. ‘The silver is mine and the gold is mine,’ declares the Lord Almighty. ‘The glory of this present house will be greater than the glory of the former house,’ says the Lord Almighty. ‘And in this place I will grant peace,’ declares the Lord Almighty.
+God sets the lonely in families, he leads the prisoners out with singing."
 
-The King Reigns—and His Son!
+The King Reigns——and His Son!
 
 Peace!
