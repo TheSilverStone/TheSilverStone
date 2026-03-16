@@ -24,7 +24,7 @@ Religion is a hard one. Simply, to him, religion is why the universe is what it 
 
 "The fool says in his heart, 'There is no God.' They are corrupt, and their ways vile; there is no one who does good.
 
-Day and night they prowl about on its walls; malice and abuse are within it. Destructive forces are ar work in the city; threats and lies never leave its streets.
+Day and night they prowl about on its walls; malice and abuse are within it. Destructive forces are at work in the city; threats and lies never leave its streets.
 
 Those who trust in their wealth and boast of their great riches; No one can redeem the life of another or give to God a ransom for them——the ransom for a life is costly, no payment should ever be enough.
 
