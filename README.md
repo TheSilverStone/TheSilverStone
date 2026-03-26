@@ -40,6 +40,7 @@ Give us aid against the enemy, for human help is worthless.
 
 God sets the lonely in families, he leads the prisoners out with singing."
 
-The King Reigns——and His Son!
+![image](https://github.com/user-attachments/assets/2a91d0c2-aff0-4ed0-b8bc-a7a95bfa9258)
+
 
 Peace!
