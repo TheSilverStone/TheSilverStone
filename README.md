@@ -6,6 +6,15 @@ I am a teenager who’s addicted to coding, communities and, unforunately, dropp
 
 I am mostly intrested in two things; creativeness and my book—not counting, of course, [BZFlag](https://www.bzflag.org). 
 
+<p align="center">
+  <!-- Main Stats Card with Holi Theme -->
+  <img src="https://github-readme-stats.vercel.app" alt="TheSilverStone Stats" />
+  
+  <!-- Top Languages Card with Holi Theme -->
+  <img src="https://github-readme-stats.vercel.app" alt="TheSilverStone Languages" />
+</p>
+
+
 The first social account is a [bzflag account](https://forums.bzflag.org/memberlist.php?mode=viewprofile&u=60550)—you'll have to be logged into the [bzflag forums](https://forums.bzflag.org/index.php) to view it. Sorry about that.
 
 I know a small bit of python, a reasonable (read virtually non-existant) knowledge of lua and C++, and a reasonable chance of surprising myself at any computer language—mainly by exactly how little I know about it.
