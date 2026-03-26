@@ -22,6 +22,8 @@ I am a 3D modeler, who works best in [blender](https://www.blender.org) (That's 
 
 If you'd like to request models or comment on other things, start an issue for the repository TheSilverStone. I'll probably answer you in two days if not sooner. (One is a closer guess.)
 
+![GitHubCard](https://githubcard.com/TheSilverStone.svg?d=_DqiVxKI)
+
 ![GitHubCard](https://githubcard.com/TheSilverStone.svg)
 
 [Religion](http://jesusislord.com) is a hard one. Simply, to him, religion is why the universe is what it is—the truth to hinself. But there is only one Truth and Life and Spirit. These extracts from the rightfully most famous Book of all time explain the core——kinda.
