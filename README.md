@@ -1,8 +1,3 @@
-[![GitHub Streak](https://github-readme-streak-stats.herokuapp.com)](https://git.io)
-
-![GitHub Metrics](https://metrics.lecoq.io)
-
-
 Hello, welcome to the complex world of my brain. 
 
 If you've been here before, you know that I sit like a spider in a vast web of spagetti code, ready to trap intruders as best as I might with my petty scripts.
