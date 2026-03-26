@@ -2,9 +2,9 @@ Hello, welcome to the complex world of my brain. If you've been here before you 
 
 I am a teenager who’s addicted to coding, communities and, unforunately, dropping icicles on the floor and watching them shatter (which never happens because I live near the equator.)
 
-I am mostly intrested in two things; creativeness and my book—not counting, of course, BZFlag. 
+I am mostly intrested in two things; creativeness and my book—not counting, of course, @BZFlag. 
 
-The first social account is a bzflag account—you'll have to be logged into the bzflag forums to view it. Sorry about that.
+The first social account is a [bzflag account](https://forums.bzflag.org/memberlist.php?mode=viewprofile&u=60550)—you'll have to be logged into the [bzflag forums](https://forums.bzflag.org/index.php) to view it. Sorry about that.
 
 I know a small bit of python, a reasonable (read virtually non-existant) knowledge of lua and C++, and a reasonable chance of surprising myself at any computer language—mainly by exactly how little I know about it.
 
@@ -14,9 +14,9 @@ I am a fan of Legos and have created several (at least, to me) masterpieces incl
 
 I moved to Saudi at seven, when I started thinking of a book, which now exists elsewhere than my head. At least, mostly. Preview is somewhere in [my website](https://thesilverstone.github.io)
 
-I am intrested in Luanti, BZFlag, and making mods/maps for both, provided I have time and a few croissants in sight.
+I am intrested in Luanti, @BZFlag, and making mods/maps for both, provided I have time and a few croissants in sight.
 
-I am a 3D modeler, who works best in blender (That's where I devolop my 3D brain.) If you need models for pretty much anything besides comercial use, contact me and I'll try to make them, charge free, though please do note that it will take me several months to get back to you.
+I am a 3D modeler, who works best in [blender](https://www.blender.org) (That's where I devolop my 3D brain.) If you need models for pretty much anything besides comercial use, contact me and I'll try to make them, charge free, though please do note that it will take me several months to get back to you.
 
 If you'd like to request models or comment on other things, start an issue for the repository TheSilverStone. I'll peobably answer you in two days if not sooner. (One is a closer guess.)
 
