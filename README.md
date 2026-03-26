@@ -1,6 +1,6 @@
-![My Stats](https://github-readme-stats-git-master-anuraghazra.vercel.app)
+[![GitHub Streak](https://github-readme-streak-stats.herokuapp.com)](https://git.io)
 
-![My Languages](https://github-readme-stats-git-master-anuraghazra.vercel.app)
+![GitHub Metrics](https://metrics.lecoq.io)
 
 
 Hello, welcome to the complex world of my brain. 
