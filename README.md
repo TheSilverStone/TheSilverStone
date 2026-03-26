@@ -1,4 +1,6 @@
-Hello, welcome to the complex world of my brain. If you've been here before you know that I sit like a spider in a vast web of spagetti code, ready to trap intruders as best as I might with my petty scripts.
+# Hello, welcome to the complex world of my brain. 
+
+If you've been here before you know that I sit like a spider in a vast web of spagetti code, ready to trap intruders as best as I might with my petty scripts.
 
 I am a teenager who’s addicted to coding, communities and, unforunately, dropping icicles on the floor and watching them shatter (which never happens because I live near the equator.)
 
