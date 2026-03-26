@@ -2,7 +2,7 @@ Hello, welcome to the complex world of my brain. If you've been here before you 
 
 I am a teenager who’s addicted to coding, communities and, unforunately, dropping icicles on the floor and watching them shatter (which never happens because I live near the equator.)
 
-I am mostly intrested in two things; creativeness and my book—not counting, of course, @BZFlag. 
+I am mostly intrested in two things; creativeness and my book—not counting, of course, [BZFlag](https://www.bzflag.org). 
 
 The first social account is a [bzflag account](https://forums.bzflag.org/memberlist.php?mode=viewprofile&u=60550)—you'll have to be logged into the [bzflag forums](https://forums.bzflag.org/index.php) to view it. Sorry about that.
 
@@ -14,13 +14,13 @@ I am a fan of Legos and have created several (at least, to me) masterpieces incl
 
 I moved to Saudi at seven, when I started thinking of a book, which now exists elsewhere than my head. At least, mostly. Preview is somewhere in [my website](https://thesilverstone.github.io)
 
-I am intrested in Luanti, @BZFlag, and making mods/maps for both, provided I have time and a few croissants in sight.
+I am intrested in [Luanti](https://www.luanti.org/en/), [BZFlag](https://www.bzflag.org), and making mods/maps for both, provided I have time and a few croissants in sight.
 
 I am a 3D modeler, who works best in [blender](https://www.blender.org) (That's where I devolop my 3D brain.) If you need models for pretty much anything besides comercial use, contact me and I'll try to make them, charge free, though please do note that it will take me several months to get back to you.
 
-If you'd like to request models or comment on other things, start an issue for the repository TheSilverStone. I'll peobably answer you in two days if not sooner. (One is a closer guess.)
+If you'd like to request models or comment on other things, start an issue for the repository TheSilverStone. I'll probably answer you in two days if not sooner. (One is a closer guess.)
 
-Religion is a hard one. Simply, to him, religion is why the universe is what it is—the truth to hinself. But there is only one Truth and Life and Spirit. These extracts from the rightfully most famous Book of all time explain the core——kinda.
+[Religion](http://jesusislord.com) is a hard one. Simply, to him, religion is why the universe is what it is—the truth to hinself. But there is only one Truth and Life and Spirit. These extracts from the rightfully most famous Book of all time explain the core——kinda.
 
 "The fool says in his heart, 'There is no God.' They are corrupt, and their ways vile; there is no one who does good.
 
