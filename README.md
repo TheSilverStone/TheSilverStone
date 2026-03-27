@@ -40,7 +40,8 @@ Give us aid against the enemy, for human help is worthless.
 
 God sets the lonely in families, he leads the prisoners out with singing."
 
-![image](https://github.com/user-attachments/assets/2a91d0c2-aff0-4ed0-b8bc-a7a95bfa9258)
+<img width="926" height="179" alt="image" src="https://github.com/user-attachments/assets/d3601639-46d9-4c6d-b2d5-c42c1347128a" />
+
 
 
 Peace!
