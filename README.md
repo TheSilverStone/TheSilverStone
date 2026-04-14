@@ -24,7 +24,7 @@ If you'd like to request models or comment on other things, start an issue for t
 
 ![GitHubCard](https://githubcard.com/TheSilverStone.svg?d=_DqiVxKI)
 
-Religion is a hard one. Simply, to him, religion is why the universe is what it is—the truth to hinself. But there is only one [Truth and Life and Spirit](http://jesusislord.com). These extracts from the rightfully most famous Book of all time explain the core——kinda.
+Religion is a hard one. Simply, to Man, religion is why the universe is what it is——the truth to hinself. But there is only one [Truth and Life and Spirit](http://jesusislord.com). These extracts from the rightfully most famous Book of all time explain the core——slightly.
 
 "The fool says in his heart, 'There is no God.' They are corrupt, and their ways vile; there is no one who does good.
 
