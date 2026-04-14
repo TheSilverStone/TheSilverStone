@@ -14,7 +14,7 @@ I don't like naming repositories after me which is why when you checked this acc
 
 I am a fan of Legos and have created several (at least, to me) masterpieces including a futuristic sci-fi phantom fighter.
 
-I moved to Saudi at seven, when I started thinking of a book, which now exists elsewhere than my head. At least, mostly. Preview is somewhere in [my website](https://thesilverstone.github.io)
+I moved to Saudi at seven, when I started thinking of a book, which now exists elsewhere than my head. At least, mostly. Preview is somewhere in [my website](https://thesilverstone.github.io).
 
 I am intrested in [Luanti](https://www.luanti.org/en/), [BZFlag](https://www.bzflag.org), and making mods/maps for both, provided I have time and a few croissants in sight.
 
