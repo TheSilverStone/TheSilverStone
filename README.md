@@ -32,6 +32,14 @@ Day and night they prowl about on its walls; malice and abuse are within it. Des
 
 Those who trust in their wealth and boast of their great riches; No one can redeem the life of another or give to God a ransom for them——the ransom for a life is costly, no payment should ever be enough.
 
+Your word is a lamp for my feet, a light on my path.
+
+The wicked have set a snare for me, but I have not strayed from your precepts.
+
+I hate double-minded people, but I love your law. You are my refuge and my shield; I have put my hope in your word.
+
+I have done what is righteous and just; do not leave me to my oppressors. Ensure your servant’s well-being; do not let the arrogant oppress me. My eyes fail, looking for your salvation, looking for your righteous promise. Deal with your servant according to your love and teach me your decrees. I am your servant; give me discernment that I may understand your statutes. It is time for you to act, Lord; your law is being broken. Because I love your commands more than gold, more than pure gold, and because I consider all your precepts right, I hate every wrong path.
+
 I cry out to God Most High, to God, who vindicates me. He sends from heaven and saves me, rebuking those who hotly pursue me.
 
 See what they spew from their mouths——the words from their lips are as sharp as swords.
