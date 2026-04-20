@@ -28,6 +28,8 @@ Religion is a hard one. Simply, to Man, religion is why the universe is what it 
 
 "In the morning, Lord, you hear my voice; in the morning I lay my requests before you and wait expectantly. For you are not a God who is pleased with wickedness; with you, evil people are not welcome. The arrogant cannot stand in your presence. You hate all who do wrong; you destroy those who tell lies. The bloodthirsty and deceitful you, Lord, detest. But I, by your great love, can come into your house; in reverence I bow down toward your holy temple.
 
+Surely, Lord, you bless the righteous; you surround them with your favor as with a shield.
+
 The fool says in his heart, 'There is no God.' They are corrupt, and their ways vile; there is no one who does good.
 
 Day and night they prowl about on its walls; malice and abuse are within it. Destructive forces are at work in the city; threats and lies never leave its streets.
@@ -51,6 +53,8 @@ Deal with your servant according to your love and teach me your decrees. I am yo
 I cry out to God Most High, to God, who vindicates me. He sends from heaven and saves me, rebuking those who hotly pursue me.
 
 See what they spew from their mouths——the words from their lips are as sharp as swords.
+
+The Lord is my light and my salvation— whom shall I fear? The Lord is the stronghold of my life— of whom shall I be afraid? When the wicked advance against me to devour me, it is my enemies and my foes who will stumble and fall. Though an army besiege me, my heart will not fear; though war break out against me, even then I will be confident.
 
 Give us aid against the enemy, for human help is worthless.
 
