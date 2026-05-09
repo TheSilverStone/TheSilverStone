@@ -65,3 +65,5 @@ God sets the lonely in families, he leads the prisoners out with singing."
 
 
 Peace!
+
+<img width="100" height="100" alt="yx04a62h2hrmw0cy0ynrepj7em_result_0 2" src="https://github.com/user-attachments/assets/48044e32-dc6b-493a-9d52-0747b28ac990" />
